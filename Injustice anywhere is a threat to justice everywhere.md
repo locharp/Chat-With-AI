@@ -109,7 +109,7 @@ In essence, it's a call to never be indifferent to injustice suffered by others,
 
 ---
 
-### Bing (GPT-4) @ Microsoft Edge
+### Bing (GPT-4) @ Microsoft
 
 *How do you understand "Injustice anywhere is a threat to justice everywhere."?*
 
