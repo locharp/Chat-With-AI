@@ -78,3 +78,8 @@ Having a tough conversation means pushing back, but in a way that might actually
 It’s tough because it’s uncomfortable. You’re challenging someone you probably care about, and they might get defensive or angry. But it’s also important because these are the people in our lives, and sometimes they need to hear the truth from someone they know, not just from some stranger on the internet.
 
 So yeah, it’s about trying to make a difference, even when it’s awkward as hell.
+trying to get them to see why their views are harmful or just plain wrong. It’s about planting a seed, even if you don’t change their mind right then and there.
+
+It’s tough because it’s uncomfortable. You’re challenging someone you probably care about, and they might get defensive or angry. But it’s also important because these are the people in our lives, and sometimes they need to hear the truth from someone they know, not just from some stranger on the internet.
+
+So yeah, it’s about trying to make a difference, even when it’s awkward as hell.
